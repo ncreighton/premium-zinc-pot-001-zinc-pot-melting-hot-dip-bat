@@ -1,0 +1,2 @@
+# premium-zinc-pot-001-zinc-pot-melting-hot-dip-bat
+Tired of scattered notes and inconsistent results in your zinc pot melting and hot dip bath projects? This Notion template brings all your process data, material logs, and quality checks into one organized workspace.  The Zinc Pot Melting &amp; Hot Dip Bath Craft Hub eliminates chaos by providing a structured system for tracking every batch, temperatur
